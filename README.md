@@ -1,2 +1,5 @@
 # vijaymalikofficial.github.io
 Vijay Malik is singer, composer &amp; a lyricist, loved and risen by the people. He is known for his gifted voice and charmed talent for music, giving a little Haryanwi twist sometimes. 
+
+
+He is a professional singer based out of Rohtak, Haryana. Vijay is a naturally gifted vocalist; he has the ability to attract legions of admirers to his concerts. He has been evolving rapidly and incessantly. It was during his graduation that this music-loving soul decided to live and breathe music. While representing his college in various techno and youth fests, the exceptional, unexampled, exclusive and alluring quality in his rendering of classical as well as pop music fascinated audience and he finished many competitions with distinction. He has shown his versatility by covering a wide variety of singers and people commend his modus operandi. His vigorous and ardent attitude towards music attracted the Hindi newspaper, Dainik Jagran's team; Vijay Malik was nominated for its show, Haryana Ke No.1 Singer (2011) and won the title. 
